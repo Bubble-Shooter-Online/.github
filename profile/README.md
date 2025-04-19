@@ -2,6 +2,8 @@
 
 Looking for an *unstoppable* burst of fun during breaks at school or home? **Bubble Shooter Unblocked** is your go-to choice! This **classic puzzle game** combines **hyper casual gameplay**, **vibrant 2D graphics**, and a touch of **arcade excitement**—all without needing downloads or logins.
 
+## <a href="https://1kb.link/PFWyeg">👉 Play Bubble Shooter Unblocked 👈</a>
+
 ---
 
 ### 🚀 Why Bubble Shooter Unblocked Is So Addictive
